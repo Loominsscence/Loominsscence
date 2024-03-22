@@ -6,8 +6,7 @@
 but other than that i can be a bit shy because i do not know what to say and convos are not my 
 greatest strength, but i do still love to chat !
 
-➼ i'm also very new to pt and i haven't guite figured out all the things and bits 💀 BUT WE'RE 
-WORKING ON IT LMAO
+➼ you wanna sign my guestbook soooo bad
 
 ➼ i have a discord that i can give out upon request, but my socials are connected to my private 
 life so i intend on keeping them private ! 
