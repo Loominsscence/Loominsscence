@@ -1,12 +1,12 @@
 ❝ i want the fireworks, i want the softest works, i want what you deserve ！❞ -- waterparks // crying over it all // greatest hits
 
-➼ loominssence / loomi ! nineteen ! she/her
+➼ delia  / loomi ! twenty ! she/they
 
 ➼ i'm very chatty if you get me going on a fandom i enjoy, or if i'm with people i already know,
 but other than that i can be a bit shy because i do not know what to say and convos are not my 
 greatest strength, but i do still love to chat !
 
-➼ you wanna sign my guestbook soooo bad
+➼ you wanna sign my strawpage
 
 ➼ i have a discord that i can give out upon request, but my socials are connected to my private 
 life so i intend on keeping them private ! 
