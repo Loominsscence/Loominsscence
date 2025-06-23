@@ -4,6 +4,8 @@
 
 ![image_2025-06-23_110142186](https://github.com/user-attachments/assets/f226e3ef-a0b0-45d2-a6ba-66cc0d0ef0c8)
 
+➼ I LOVE MY BOYFRIEND SM <3 he is the greatest thing to ever happen to me and i love him to bits and freaking pieces, i will never shut up about him if you let me start talking about him 
+
 ➼ i'm very chatty if you get me going on a fandom i enjoy, or if i'm with people i already know,
 but other than that i can be a bit shy because i do not know what to say and convos are not my 
 greatest strength, but i do still love to chat !
